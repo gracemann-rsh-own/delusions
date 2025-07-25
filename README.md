@@ -1,3 +1,7 @@
+# FYI Delusions Warning , No Theoretical Proofs Ahead Only Glorified Shower Thoughts
+# refer samAltmanIsANerd For Actualy Roadmap 
+# If you are stil gonna go ahead there is someting wrong with you my friend 
+
 # 🧠💀 **DELUSIONS** 💀🧠
 ## *No Cap, This Repo is About to be Bussin for AGI Fr Fr*
 # Stay Away Elon Musk you a Boomer
